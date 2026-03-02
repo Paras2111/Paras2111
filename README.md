@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently working on **algorithmic logic building**
 
-- 📫 How to reach me **paras.bajpai.mat20@itbhu.ac.in**
+- 📫 How to reach me **parasbajpai47@gmail.com**
 
 
 <p align="left">
